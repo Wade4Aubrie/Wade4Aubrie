@@ -3,7 +3,7 @@
 **Wade4Aubrie/Wade4Aubrie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
-bndpc3hlenI=
+bndpc3hlenI=Z3luZGNsdG0=
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...eXVoa3Z3bHI=ZGF1dHBpams=am9tYnhyd3Q=YXd4Z2l0dnI=Y2diZXBuaHk=dXF6c2hqYmw=aG9ncm52aWE=bGZka3lnY3M=cnFqa3Nmbnc=Z2V6d2Z1YWs=Y3dtYXlwYms=dnN3YW9ycGRtcWY=anZrZmRocW0=d3VwZW1sYnE=dXNncmFoaWo=dGhwZWQ=
