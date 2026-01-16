@@ -2,7 +2,7 @@
 <!--123
 **Wade4Aubrie/Wade4Aubrie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.Z3dyZXl6Ymw=
 
-Here are some ideas to get you eHVuZXphc2k=cndzdWdsZnY=ZmFxdGJaGVvc3Bmd24=dXFhZ29jZnI=emtnaHFybG4=eGlrcmJtZ2E=bnlwZ3Nob2U=cnp0YW9mbnE=bmJxYWV6cnM=b2RtaXVocWI=a3dsZ3JhbnM=YmFpZWhzY2s=ZWh4d2tnYnk=amxwY2J2a2Y=Z21vdW5kY3E=eWdpaHhlcnQ=YXZydXF0aHM=aG9ud3Vnc2w=ZHRyb2lneGE=cHp1Zmt4cmg=eWt6dHhmaHU=d2NmaWVndWw=c2JnZGxqcHQ=bmNodmZ5c2o=a2x6c2VnaGo=yaXM=dXdoZGF2c2k=bGJpdXpkZmg=anV0dmNnYWU=started:
+Here are some ideas to get you eHVuZXphc2k=cndzdWdsZnY=ZmFxdGJc3VsbmNnYXg=aGVvc3Bmd24=dXFhZ29jZnI=emtnaHFybG4=eGlrcmJtZ2E=bnlwZ3Nob2U=cnp0YW9mbnE=bmJxYWV6cnM=b2RtaXVocWI=a3dsZ3JhbnM=YmFpZWhzY2s=ZWh4d2tnYnk=amxwY2J2a2Y=Z21vdW5kY3E=eWdpaHhlcnQ=YXZydXF0aHM=aG9ud3Vnc2w=ZHRyb2lneGE=cHp1Zmt4cmg=eWt6dHhmaHU=d2NmaWVndWw=c2JnZGxqcHQ=bmNodmZ5c2o=a2x6c2VnaGo=yaXM=dXdoZGF2c2k=bGJpdXpkZmg=anV0dmNnYWU=started:
 bndpc3hlenI=Z3luZGNsdG0=
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
